@@ -4,7 +4,7 @@
 - Sadly, I might be late to study at University of Toronto in Statistics program because of my study permit get a bit delayed.
 - 💞️ I have a Google Play Store publisher account named ALAT Dev. and have 2 application published. Feel free to check out two of my projects on Google Play Store.
 - 📫 Reach me by:
-      Email : alatdeveloper@gmail.com
+      Email : alat.developer@gmail.com
       Instagram : alatdeveloper
 
 <!---
